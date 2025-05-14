@@ -9,6 +9,6 @@
 
 ## Link da narração
 
-Aqui apenas foi narrado as principais definições udadas em estatisitica adicionadas ao soundclound.
+Aqui apenas foi narrado as principais definições usadas em estatística e adicionadas ao soundclound.
 
 https://soundcloud.com/odair-jose-629672195/estatisitica-descricao-das-principais-deifinicoes
